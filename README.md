@@ -1,1 +1,1 @@
-# Projects
+# The maps made on the territory of Ialomita county were made for the bachelor's work, and the other maps were made in the sign of Geomorphology, at the faculty, on a region given by the teacher. Some maps from the seminar come with explanations in Romanian.
